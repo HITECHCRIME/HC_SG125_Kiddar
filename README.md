@@ -18,8 +18,23 @@ FREE_HARD_XXXTENTACION_x_RONNY_J_x_JASIAH_DISTORTED_TRAP_BEAT_END_PROD._MYSTXRY-
 ## Lyrics
 
 ```
+
+Whoop Whoop Whoop
+
+Whoop Whoop Whoop
+
+Whoop Whoop Whoop
+
+Let them know we already on the brink
+Themes of death pulling us out of sleep 
+distant approach i'm missin'
+
+Let them know we already on the brink
+Themes of death pulling us out of sleep 
+distant approach i'm missin'
+
 Let the bass say that
-Cannet ey sa
+can i say that Cannet ey sa
 Let them know we already on the brink
 Themes of death pulling us out of sleep 
 to approach so Distinct so distinct
@@ -28,8 +43,8 @@ desolate desolate
 comprehend this
 
 Let them know we already on the brink
-Themes of death pulling us out of sync 
-to approach so Distinct so distinct
+Themes of death pulling us out of sync aye
+to approach so, so distinct yeah
 
 
 ```
