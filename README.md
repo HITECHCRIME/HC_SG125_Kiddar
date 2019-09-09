@@ -31,8 +31,11 @@ distant approach i'm missin' it
 
 Let them know we already on the brink
 Themes of death pulling us out of sleep  yeah
+distant approach i'm missing it
+let them think, what's so wrong
+playful rest, never plannin' bliss
 
-distant approach i'm missin'
+distant approach i'm missin' it
 
 Let the bass say that
 can i say that Cannet ey sa
@@ -41,7 +44,7 @@ Themes of death pulling us out of sleep
 to approach so Distinct so distinct
 
 
-Let them generate
+Let somebody generate
 
 desolate desolate 
 comprehend this
