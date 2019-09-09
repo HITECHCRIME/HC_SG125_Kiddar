@@ -27,10 +27,11 @@ Whoop Whoop Whoop
 
 Let them know we already on the brink
 Themes of death pulling us out of sleep 
-distant approach i'm missin'
+distant approach i'm missin' it
 
 Let them know we already on the brink
-Themes of death pulling us out of sleep 
+Themes of death pulling us out of sleep  yeah
+
 distant approach i'm missin'
 
 Let the bass say that
@@ -39,12 +40,15 @@ Let them know we already on the brink
 Themes of death pulling us out of sleep 
 to approach so Distinct so distinct
 
+
+Let them generate
+
 desolate desolate 
 comprehend this
 
 Let them know we already on the brink
 Themes of death pulling us out of sync aye
-to approach so, so distinct yeah
+to approach so (distinct), so distinct yeah
 
 
 ```
