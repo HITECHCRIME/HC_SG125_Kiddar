@@ -19,7 +19,6 @@ MYSTXRY BEATS
 ## Lyrics
 
 ```
-
 Whoop Whoop Whoop
 
 Whoop Whoop Whoop
