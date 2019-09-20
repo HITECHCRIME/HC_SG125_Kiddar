@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Kidder / Kidda
 
-**Listen now:** x
+**Listen now:**
 
 ## Project Data
 
