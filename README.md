@@ -12,9 +12,9 @@ FREE_HARD_XXXTENTACION_x_RONNY_J_x_JASIAH_DISTORTED_TRAP_BEAT_END_PROD._MYSTXRY-
 MYSTXRY BEATS
 
 
-**Title:**  / **Featuring:** 
+**Title:** Kidder / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** MYSTXRY / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
