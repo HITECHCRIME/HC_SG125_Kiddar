@@ -45,15 +45,14 @@ Let them know we already on the brink
 Themes of death pulling us out of sleep 
 to approach so Distinct so distinct
 
-
 Let somebody generate
 
 desolate desolate 
 comprehend this
 
-Let them know we already on the brink
-Themes of death pulling us out of sync aye
-to approach so (distinct), so distinct yeah
+let them know we already on the brink
+themes of death pulling us out of sync aye
+approach so distinct, so distinct yeah
 
 
 
