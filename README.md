@@ -1,12 +1,12 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Kidder / Kidda
+# MOTHNODE_ Kidda (?)
 
 **Listen now:**
 
 ## Project Data
 
-Description.
+Exported to Logic.
 
 FREE_HARD_XXXTENTACION_x_RONNY_J_x_JASIAH_DISTORTED_TRAP_BEAT_END_PROD._MYSTXRY-youtube-LiRT0Fx7lCo-251
 MYSTXRY BEATS
