@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Kidda (?)
+# MOTHNODE_ Kiddar
 
 **Listen now:**
 
@@ -13,6 +13,16 @@ MYSTXRY BEATS
 
 MOTHNODE_Kiddar (was kidder, then kidda, then i was like “i want unique names and lore” so music video and accompanying content will extend the story beyond lyrics alone)
 
+/// UPLINK ESTABLISHED_
+„let them know we already on the brink
+themes of death pulling us out of sync aye
+approach so distinct, so distinct yeah” .
+
+This feels like one of these song vids on YouTube that loops the animation. .
+
+Did some additional audio editing of prototype HC_SG125 which was first named Kidder, then Kidda, now Kiddar since I want it to be lore related. Slang for a specific place in @hitechcrime universe. But shhh! Not telling just yet you #cyberpunk buffs :) . /// NODE STEMS_
+#aggrotrap #trapcore #trapmetal #prototype #metal #rap #trap #polskirap #darktrap #hitechcrime #universe #lore #cyber #futura #techwear #humanedge #red #cyberpunk2077 #cyberpunks #cyberpunktheme #nofuture #newfuture . /// ADD_
+I’d like to thank everyone for the words of support and kindness. Appreciate each and every one of you, you know who you are, Helve Operatives.
 
 **Title:** Kidder / **Featuring:** MOTHNODE
 
@@ -53,6 +63,8 @@ comprehend this
 let them know we already on the brink
 themes of death pulling us out of sync aye
 approach so distinct, so distinct yeah
+
+this is hitech crime
 
 
 
