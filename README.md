@@ -11,6 +11,8 @@ Exported to Logic. Edit: Nectar EQ
 FREE_HARD_XXXTENTACION_x_RONNY_J_x_JASIAH_DISTORTED_TRAP_BEAT_END_PROD._MYSTXRY-youtube-LiRT0Fx7lCo-251
 MYSTXRY BEATS
 
+MOTHNODE_Kiddar (was kidder, then kidda, then i was like “i want unique names and lore” so music video and accompanying content will extend the story beyond lyrics alone)
+
 
 **Title:** Kidder / **Featuring:** MOTHNODE
 
