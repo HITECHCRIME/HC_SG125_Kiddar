@@ -86,6 +86,21 @@ this is hitech crime
 
 ## Notes
 
+MOTHNODE_ Kiddar [PROTO2.0] [PROD. MYSTXRY]
+
+/// UPLINK ESTABLISHED_
+„let them know we already on the brink
+themes of death pulling us out of sync aye
+approach so distinct, so distinct yeah” .
+
+This feels like one of these song vids on YouTube that loops the animation. .
+
+Did some additional audio editing of prototype HC_SG125 which was first named Kidder, then Kidda, now Kiddar since I want it to be lore related. Slang for a specific place in @hitechcrime universe. But shhh! Not telling just yet you #cyberpunk buffs :) . /// NODE STEMS_
+#aggrotrap #trapcore #trapmetal #prototype #metal #rap #trap #polskirap #darktrap #hitechcrime #universe #lore #cyber #futura #techwear #humanedge #red #cyberpunk2077 #cyberpunks #cyberpunktheme #nofuture #newfuture . /// ADD_
+I’d like to thank everyone for the words of support and kindness. Appreciate each and every one of you, you know who you are, Helve Operatives.
+
+@hitechcrime
+
 
 ## Music Video
 
